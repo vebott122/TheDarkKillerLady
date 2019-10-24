@@ -1,0 +1,2 @@
+# TheDarkKillerLady
+Jangan lupa bersyukur
